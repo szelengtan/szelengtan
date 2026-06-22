@@ -8,6 +8,6 @@ I’m a Star Education Fund scholar for both Diploma and Degree studies. I’ve 
 
 Outside of work, you might see me in a Taekwondo poomsae class, swimming, or hanging out with cute dogs.
 
-Contact:
+Contact:/nd
 ★ tanszeleng29@gmail.com
-★ +6011-31658831
+
